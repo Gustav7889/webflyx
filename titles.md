@@ -1,1 +1,1 @@
-*The Onternship
+*The Internship
